@@ -1,1 +1,1 @@
-# 3Nergize
+# Energize
